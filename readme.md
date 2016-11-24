@@ -1,5 +1,3 @@
 just fuck off
 John fuck off
-
-nigga loves dick
-- TL
+chicken is best when fried
